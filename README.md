@@ -10,3 +10,9 @@ challenge_amigo_secreto
 
  ![image](https://github.com/user-attachments/assets/f565a380-2fa2-409f-8c24-43cbd63ce1ee)
 
+ Aquí les dejo un vídeo de cómo jugar
+[Grabación de pantalla desde 01-02-25 17:56:06.webm](https://github.com/user-attachments/assets/a70f5c62-e488-4c43-8aa4-e4160bd5184e)
+
+
+
+
